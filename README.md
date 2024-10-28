@@ -2,7 +2,7 @@
 
 How to delete an Instagram account if a user has forgotten his/her password, e-mail address, or phone number. If, for some reason, you find it difficult to delete an Instagram account because you have forgotten your password, email, or phone number, be aware that you are not alone. Most users go through this challenge when they want to take back or delete an account that has remained inactive. The good news is, there are various ways one can delete his account through Instagram-even without account logging information.
 
-##You can use this tool to delete any Instagram account you like: https://einstapp.com
+## You can use this tool to delete any Instagram account you like: https://einstapp.com
 
 In this article, all steps will be explained in detail to help someone delete an Instagram account where the password, email, or phone number is not known.
 
